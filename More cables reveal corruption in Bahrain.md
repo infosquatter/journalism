@@ -1,5 +1,7 @@
-Pedro Noel and Santiago Carrión
-Originally published at WLCentral Feb 19 2011 <http://wlcentral.org/node/1332>
+######Pedro Noel and Santiago Carrión
+
+#####Originally published at WLCentral Feb 19 2011 <http://wlcentral.org/node/1332>
+
 #More cables reveal corruption in #Bahrain
 
 Every day the constant flow of leaks reveals why the people are fighting so hard to tear down the regime and write a new constitution: they show Bahrain as a country based on media manipulation, government lobbying and all sorts of corruption and trafficking of influences.
